@@ -8,6 +8,7 @@ You are diligent? They try to mold you into an exploitable.
 You are kind generally? They send people to drain and damage your already limited resources, and look for openings to harm you.
 You are kind to the elderly, women and children? They send them as harassers and stalkers.
 You are kind to animals? They use animals for manipulation.
+And then they will use your self-reflection against you and blame everything on you.
 
 ### Children
 They also sent children to me for unknown reasons. You may recall that they falsely accused me of photographing children after an arbitrary arrest in the UK. It continued even after that. They would have children waiting at places I often stop by. For example, they would wait at a park with the children and have them come to “use the facility I was using to exercise”, precisely in the middle of my workout. On one recent occasion, they even had the children bump into me when I was sitting. This is one of the reasons that I said everything is a tool to them.
