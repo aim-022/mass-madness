@@ -4,6 +4,12 @@ Please don’t try to talk to me. I can only read, and I am inclined to believe 
 
 I am constantly monitored and stalked. If someone appears to try to speak to me, over 95% they are from the persecutor group. If they try to fill you in about me, over 99% they are the persecutors. If they are from the authorities, there is virtually no chance that they are not the persecutors.
 
+However, you can contact me via email or leave comments on various sites, including but not limited to X, GitHub and Grammarly.  
+Email: ArtificialIllegalMigrant@outlook.com  
+X: @AI_Migrant  
+GitHub: https://github.com/AI-Migrant/mass-madness/  
+Grammarly: crimes-need-attention.md
+
 ---
 
 What do you think they think they are doing? Let me tell you what they are doing.
@@ -16,7 +22,7 @@ They are allowed to violate privacy, stalk and harass targets, intimidate and do
 
 Their activities are backed and coordinated by abuse of technologies and powers, such as extreme surveillance, impunity, and the authoritative power to get all kinds of organisations and individuals to cooperate with them.
 
-What I have recorded is very limited and sometimes hard to watch, but I believe you can still see sickness in some of them.
+What I have recorded is very limited, often hard to watch, and I haven't separated the suspects from the non-suspects, but I believe you can still see sickness in some of them.
 
 These people are part of the network that performs these activities.
 
