@@ -1,7 +1,7 @@
 # SOS
-For the entries of the persecution I am suffering, please read at https://github.com/AI-Migrant/asylum_diary.
-
 Please know that this is a serious call for help. You might be reading this on an unlikely channel, but this is not a prank.
+
+For the entries of the persecution I am suffering, please read at https://github.com/AI-Migrant/asylum_diary.
 
 The governments of the host countries are helping the persecutors:
 1. I am under extreme surveillance constantly.
@@ -31,8 +31,9 @@ I used other accounts before, but I can’t use them anymore because my belongin
 If you want to confirm, I currently (2 Feb 2026) spend most of my time at the Pancras Square Library during the day and sleep on the street around the area. I am usually in a red jacket and carrying bags with signs. However, please don’t consider that I am fine just because I can still use the library to a certain degree. After they have stolen my belongings, what I can do is further limited.
 
 Please read the repos for details.  
-github.com/AI-Migrant/mass-madness  
-github.com/AI-Migrant/asylum_diary
+https://github.com/AI-Migrant/mass-madness  
+https://github.com/AI-Migrant/asylum_diary  
+https://github.com/AI-Migrant/persecuted-media-files
 
 ---
 
@@ -52,7 +53,7 @@ To put the whole persecution under one roof, the best summary is perhaps this:
 
 ## An experiment on making humans accept being treated as animals—and be grateful for it—while respecting the persecutors.
 
-What was originally committed by one notorious regime is now joined by many.
+What was originally committed by one notorious regime is now joined by countries which are supposed to have the sense about human rights and dignity.
 
 ---
 
