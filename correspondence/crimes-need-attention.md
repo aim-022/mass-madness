@@ -32,7 +32,7 @@ My health gets damaged again and again as if I have no right to stay healthy. If
 
 What do you think they think they are doing? Let me tell you what they are doing.
 
-Lithuania helped the Chinese Communist Party to insult and harm me for 22 months while pretending my asylum application was being considered. I left Lithuania when I realised that they were faking even legal processes. The UK has been helping them, doing the same and going further in the past 25 months, committing crimes in the process. They are likely blaming everything on me with their narrative now, after destroying the evidence through assaults and thefts.
+Lithuania helped the Chinese Communist Party to insult and harm me for 22 months while pretending my asylum application was being considered. I left Lithuania when I realised they were faking even legal processes. The UK has been helping them, doing the same and going further in the past 25 months, committing crimes in the process. They are likely blaming everything on me with their narrative now, after destroying the evidence through assaults and thefts.
 
 I recently came across terms such as "gang stalking" and "targeted individuals" (or TIs) online, which bear a striking resemblance to some of my experiences. Apparently, these types of activities have been ongoing for years worldwide. The perpetrator groups enjoy impunity, with the authorities at their core.
 
