@@ -29,7 +29,7 @@ X（旧Twitter）を中心に、インターネット上で日本でも同じよ
 
 ---
 
-もしあなたも、監視も権威主義もない社会を望むのであれば、私は大胆にお願いしたいのです――どうか、私を受け入れてください。まずは、幸福な社会こそが、厳しく統制された社会よりもはるかに強いのだということを、あなた方の政府に一緒に伝えていきましょう。私たちが成功すれば、世界は自然とそれを見て、そして模倣するでしょう。
+もしあなたも、監視も権威主義もない社会を望むのであれば、どうか私を受け入れてください。まずは、幸福な社会こそが、厳しく統制された社会よりもはるかに強いのだということを、日本の政府に一緒に伝えていきましょう。私たちが成功すれば、世界は自然とそれを見て、そして模倣するでしょう。
 
 大きな夢に聞こえるかもしれませんが、希望を抱く価値のある夢ではないでしょうか。
 
@@ -56,6 +56,8 @@ X（旧Twitter）を中心に、インターネット上で日本でも同じよ
 ---
 
 ---
+**Grammarlyで読む（Read on Grammarly）：https://coda.grammarly.com/d/A-Plea-to-the-People-of-Japan_dtR6GISBnwA**  
+Japanese version is at the top. (日本語版は上部にあります)
 
 Previously, I wrote a plea to the Japanese authorities (https://coda.grammarly.com/d/Plea-JP_d5Jrbrmt8A6). This time, I would like to write to you, the Japanese people, instead.
 
@@ -85,7 +87,7 @@ It might be naive to hope that such cliches in written stories reflect the spiri
 
 ---
 
-If you, too, share the same vision of a society without surveillance and authoritarian nonsense, I boldly ask you to have me. Together, we will first persuade your government that a happy society is way more powerful than a tightly controlled one. When we succeed, we will show the world, or rather, the world will see and copy naturally.
+If you, too, share the same vision of a society without surveillance and authoritarian nonsense, I boldly ask you to have me. Together, we will first persuade the Japanese government that a happy society is way more powerful than a tightly controlled one. When we succeed, we will show the world, or rather, the world will see and copy naturally.
 
 This might sound like a big dream, but that is something worth hoping for, isn’t it?
 
