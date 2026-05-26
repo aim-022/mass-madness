@@ -11,7 +11,7 @@ class YouTubeTranscriptTimestampRemover {
  
 			if (!Character.isDigit(words[0].charAt(0)) || !(words[0].contains(":") || words[1].startsWith("second") || words[1].startsWith("minute"))) {
 				sb.append(s);
-				sb.append(' ');
+				sb.append('\n');
 			}
 		}
  

@@ -9,3 +9,8 @@ The TI One Voice Declaration is an innovative project creating a secure digital 
 
 [偽装裁判被害者の会](https://osamethod.wixsite.com/gisohsaiban)  
 A WIX website of a victim and activist.
+
+[Targeted Justice](https://targetedjustice.com/)  
+501(c)(3) organization fighting for freedom,  peace, & restorative justice for Targeted Individuals.  
+Targeted Justice is the world's leading information resource for Targeted Individuals, Havana Syndrome, & Anomalous Health Incidents.  
+Our newsletter has 21,000+ subscribers & 200,000+ page views each month.
