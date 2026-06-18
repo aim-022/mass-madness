@@ -14,3 +14,6 @@ A WIX website of a victim and activist.
 501(c)(3) organization fighting for freedom,  peace, & restorative justice for Targeted Individuals.  
 Targeted Justice is the world's leading information resource for Targeted Individuals, Havana Syndrome, & Anomalous Health Incidents.  
 Our newsletter has 21,000+ subscribers & 200,000+ page views each month.
+
+[集スト博士](https://note.com/agile_wasp495/n/n6457c7ba5ea3)
+「集団ストーカーは“陰謀”ではなく構造化された暴力です。」私は集団ストーカー・電磁波攻撃・リストラストーキング被害者であり同時に加害構造・技術背景を研究・発信 “気のせい”“妄想”と片付けられることへの違和感と怒りから国内外の論文・技術資料・被害事例を徹底調査
